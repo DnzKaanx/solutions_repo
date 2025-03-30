@@ -1,2 +1,2 @@
-# seni sevmek olumsa gulumse
+# ejderhanı naasıl egıtcen abı
 
